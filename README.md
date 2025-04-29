@@ -1,4 +1,4 @@
-# https://douyin.gqs7.cn/
+# 官网 https://douyin.gqs7.cn/
 好旺代刷网 - 专业的抖音快手代刷平台,QQ代刷网,代刷网,刷名片赞代刷网24小时,全网最低
 官网地址：https://douyin.gqs7.cn/
 
